@@ -6,8 +6,8 @@ In our quest to transform the online casino landscape, we proudly introduce a re
 Globally compatible with all casino sites, Goblin Baccarat bot software introduces a betting system that diverges from traditional strategies like Martingale or Fibonacci. It prioritizes the protection of users’ balances while methodically boosting profits with reduced risk. This innovative system ensures that each bet and increment is strategically crafted to improve your chances of winning, all while maintaining the excitement of the game and protecting your financial stability.
 
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KHv2na2kVDc?si=NrH3oKBxwxmZfg2P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-
+[[<iframe width="560" height="315" src="https://www.youtube.com/embed/KHv2na2kVDc?si=NrH3oKBxwxmZfg2P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+](https://youtu.be/KHv2na2kVDc?si=eV9TJC0WcGLoGDsG)](https://youtu.be/KHv2na2kVDc?si=eV9TJC0WcGLoGDsG)
 
 Low Risk Betting Strategy: Profitable Games with Goblin Baccarat
 Goblin Baccarat protects your balance using a smart betting strategy and allows you to win gradually, with less risk. This strategy allows you to win in simple and effective steps:
